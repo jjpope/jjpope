@@ -1,4 +1,4 @@
-The name's Jerod. The game's not being a lost 60 year old typing with one finger and having my kids show me up.
+The name's Jerod. The game's not being a lost 60 year old typing with one finger and having my grandkids show me up.
 
 According to my degree, which will be an achievment unlocked in December 2022, I'm techinically an "IT expert," but after an internship I have my doubts. Therefore, I am attempting to expand into the embers of software development.
 
