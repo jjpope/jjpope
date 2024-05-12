@@ -13,4 +13,3 @@ Like music, my coding skills are always looking to be improved. I've written a f
 ALL IN DUE TIME
 
 LinkedIn: https://www.linkedin.com/in/jerod-pope/
-SoundCloud: https://soundcloud.com/therealxop
